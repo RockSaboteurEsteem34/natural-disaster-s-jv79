@@ -1,4 +1,4 @@
-#  
+#  Experience steal a brainrot like never before with steal a brainrot best Script, the #1 Script. Includes custom skins and invisibility for unbeatable
 
 
 
